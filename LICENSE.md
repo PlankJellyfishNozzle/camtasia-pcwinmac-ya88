@@ -1,4 +1,4 @@
-# 
+# Avancé Camtasia effets pour Mac OS | Meilleur Camtasia effets pour PC Windows. Avec export 4K et étirement temporel — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
